@@ -10,18 +10,6 @@ I highly recommend this comprehensive e-commerce strategy study. Leveraging adva
 
 ![My Image](assets/img2.png)
 
-<hr><hr>
-
-![My Image](assets/img3.png)
-
-<hr>
-
-![My Image](assets/img5.png)
-
-<hr>
-
-![My Image](assets/img1.png)
-
 <hr>
 
 <br>
